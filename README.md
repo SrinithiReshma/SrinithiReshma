@@ -2,5 +2,5 @@
 - 👀 I’m interested in designing and data analysis
 - 🌱 I’m currently learning Information Technology
 - 💞️ I’m looking to collaborate on projects that fuse data analysis and user-centric design principles.
-- 📫 How to reach me: Feel free to message me here on Twitter!
+- 📫 How to reach me: Feel free to message me here on linkedin!
 - 😄 Pronouns: She/Her
